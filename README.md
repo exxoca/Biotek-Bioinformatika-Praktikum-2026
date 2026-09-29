@@ -1,0 +1,1 @@
+# Biotek-Bioinformatika-Praktikum-2026
